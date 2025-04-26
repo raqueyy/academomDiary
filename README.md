@@ -1,0 +1,1 @@
+Hi! I'm Raquel Santos, a student of Tangub City Global College and currently taking a Bachelor of Arts in Communication. I enjoy creating a website for my project. I'm passionate about connecting with people, creating content, and sharing my journey online. 🫶
